@@ -1,2 +1,1 @@
-# sorgubot
-sorgu bot sorgu ad soyad gsm adres tapu aile sms bomber https://t.me/holotoolsbot
+sorgubot #sorgu #sorgu panel #vesika #sorgusitesi #bedava sorgu #free sorgu #ücretsiz sorgu #holotoolsbot #holotools https://t.me/holotoolsbot
